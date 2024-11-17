@@ -1,0 +1,1 @@
+#veraferi ver gavakete
